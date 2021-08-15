@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LuckyManPT
-- 👀 I’m interested in having un making projects
+- 👀 I’m interested in having fun making projects
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on anything i can
 - 📫 How to reach me: Instagram: @l.m.c.s.2
